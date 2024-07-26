@@ -1,1 +1,1 @@
-Hey, I'm Keerthi! I'm a math and computer science major at UC San Diego. 
+Hey, I'm Keerthi! I'm a math and computer science major at UC San Diego.
